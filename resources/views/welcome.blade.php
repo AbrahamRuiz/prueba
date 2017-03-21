@@ -79,7 +79,7 @@
 
             <div class="content">
                 <div class="title m-b-md">
-                    puto
+                     Cacharro Chichon Homosexual
                 </div>
 
                 <div class="links">
